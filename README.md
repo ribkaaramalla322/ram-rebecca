@@ -1,2 +1,0 @@
-# ram-rebecca
-RamaKrishna Rebecca
